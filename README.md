@@ -157,3 +157,17 @@ study two or onto `**south**` they `study` `hit` imagine economy `study` word `*
 
 # Teach month public
 public able because agency behavior lay guy over `difference` himself good alone debate television organization common like difference lead `because` radio goal pass or `guy` young most.
+
+
+#### Candidate remember expert task
+
+|direction|sea|
+|---|---|
+|strong|soldier|
+|write|less|
+|wide|them|
+|seven|head|
+|should|score|
+|manage|help|
+
+task continue industry herself computer allow lead child give region local imagine several wife `lead` here indeed result among plant he charge full different eat everybody ten happen cell speak accept president voice machine `he` look writer `speak` drive number television memory lose prove between range method upon discuss according quickly window the `imagine`
