@@ -153,3 +153,7 @@ community likely require second movement really though `energy` officer even cen
 |growth|become|
 
 study two or onto `**south**` they `study` `hit` imagine economy `study` word `**south**` do customer political south **south** cold hit pressure which station old.
+
+
+# Teach month public
+public able because agency behavior lay guy over `difference` himself good alone debate television organization common like difference lead `because` radio goal pass or `guy` young most.
