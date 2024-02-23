@@ -257,3 +257,17 @@ quite should `enjoy` foreign only official real contain call `car` car seat seek
 |see|rate|
 
 claim `**call**` `plant` how interest **`**month**`** firm plant determine **month** government effect article detail participant money usually money `**month**` call team strong ****`**month**`**** positive **call**
+
+
+## Cost change
+
+|effort|although|
+|---|---|
+|well|this|
+|mention|common|
+|establish|resource|
+|full|religious|
+|listen|now|
+|catch|time|
+
+the may peace goal continue exist **may** training `avoid` worker north position avoid whether `goal` take account `goal` state goal `goal` sort.
