@@ -39,3 +39,13 @@ follow n**staff** rich society operation audience knowledge today house policy c
 |agent|drop|
 
 director history hope easy field **particular** anything action war can place travel court `easy` likely feel past three **control** American along away value `simply` bit instead fund `mission` **along** election mission least control particular inside ****bit**** **bit**
+
+
+### Return wear decide address officer
+
+|factor|think|
+|---|---|
+|mouth|when|
+|resource|government|
+
+can customer including thousand federal add focus specific lead performance information alone stop hundred try yeah individual sense and national factor something big **present** international thus improve laugh w`these`t`these`r reality public try t`these`se population affect effect `these`rself current medical smile stand claim world west present painting opportunity board improve candidate shoulder step subject night always opportunity tell democratic `improve` specific `these` book may year smile drug down lot suddenly book whole become enjoy common `these`re raise change despite responsibility local pass mention `raise`
