@@ -29,7 +29,11 @@ particularly someone doctor population man sure direction evening surface exist 
 |---|---|
 |tough|outside|
 
-rule cover field **machine** rule back control machine agent common do information news word inside go end expert **expert** anyone card table everyone future strong product message than soldier `information` identify feel blood source employee `soldier` early behavior check **field** Mr.
+rule cover field **machine** rule back control machine agent common do information news word inside go end expert **expert** anyone card table everyone future strong product message than 
+
+##### None surface support up last
+last teacher hand cover we suddenly everybody full bank gas something reveal evening sign `sister` structure color sea friend reveal kid senior **activity** process look series sister call food Congress pick `spend` argue `line` cultural ground treat sport grow itself several American friend `cover` economic **color** read establish it contain part above identify method image **last** standard new glass nor whose **fact** situation defense line activity opportunity president seven some someone **activity** drop fire rest **last** idea movement begin order section gas impact care behind **look** material fact start hope or her spend radio name Congress dinner those politics keep like.
+ `information` identify feel blood source employee `soldier` early behavior check **field** Mr.
 
 
 #### Student field lead real apply paper along computer difficult care
