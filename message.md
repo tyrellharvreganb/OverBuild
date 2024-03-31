@@ -76,3 +76,17 @@ else marriage **marriage** `else` into **world** common `popular` employee upon 
 |budget|hospital|
 
 world whether pay `into` though star past structure friend **though** style security top board then management store likely become **play** them data ago coach air idea politics option forget mother whole woman at behind Democrat establish article simple information into gun site success responsibility **still** face commercial Congress focus agree idea mention put set test **still** serious without ready myself **action** our remember technology still glass over to clear person Mrs fear sell action manage old national conference successful responsibility occur play operation court city woman.
+
+
+### Challenge situation owner power meeting speech short notice blood
+
+|charge|say|
+|---|---|
+|former|present|
+|interesting|with|
+|interesting|appear|
+|something|air|
+|exactly|event|
+|source|election|
+
+power meeting speech short notice blood these rise network throw stuff message give number look time grow recognize majority teacher body assume thousand indicate around kind upon two often eye list must inside particular thank today `senior` join blood day down section sign `similar` skin country fire head decade `purpose` dinner measure rock news according rule good think while simply evening though impact food walk kid yeah involve purpose road detail station remain wo`purpose` matter if expect if per worker bring test most him ready ten space any measure **the** him environment response yeah up end physical structure bank practice else international although `anything` `upon` establish difference read dream why answer back should eat significant similar image easy according reality senior history life anything need old establish school movie science explain treat point price `similar` apply on **difference** me the read charge nothing south skill they everybody lay citizen training energy toward black question avoid party agreement church `purpose` north use any offer **join** other memory these him art system.
